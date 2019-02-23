@@ -2,7 +2,9 @@
 
 # COMPETITIVE GROUP
 # BROWN UNIVERSITY
+# February 23-24, 2019
 
+#whats gucci brahhhhh
 
 # Group Members:
 
