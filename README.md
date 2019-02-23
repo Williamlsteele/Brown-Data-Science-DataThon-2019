@@ -2,6 +2,7 @@
 
 # COMPETITIVE GROUP
 # BROWN UNIVERSITY
+# February 23-24, 2019
 
 
 # Group Members:
